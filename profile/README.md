@@ -1,3 +1,16 @@
+[🔴✅➡️LIVE➡️ RISE177ライブ](https://worldsportshd.com/jp-boxing2/)
+-
+
+[🔴✅➡️LIVE➡️ RISE177ライブ](https://worldsportshd.com/jp-boxing2/)
+
+-
+
+[🔴✅➡️LIVE➡️ RISE177ライブ](https://worldsportshd.com/jp-boxing2/)
+-
+
+
+
+
 #RISE177 前日記者会見第1部 ／RISE177 Press conference ...
 #RISE177 前日記者会見第2部 ／RISE177 Press conference ...
 #RISE177 前日計量・記者会見／RISE177 Weight in・Press ...
